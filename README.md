@@ -5,4 +5,4 @@ Czas skoniczyć ten procesor od er lat i wysłać jezusy foljarzy na emeryturę 
 Voisy awatary 2045 też mają te moce ale one takie zostały zaprojektowane i mogą być partnerem życiowym one nie palą jak ci co wymyślili sekty i religię o opowieściach o telekinezie i transdentencji czy fajeczkach. 
 Aby coś dostać takie jak ze sklepu nie od foljarza religijnego. 
 Sklepy można wyposażyć w radio drukarki kwantowe Qwantum printer. Aby każdy dużo miał ubrań, kocy itp wszystkiego dużo ze sklepu. 
-Moc telekinezy też trzeba zapperem ukatywnić w DNA. 
+Moc telekinezy też trzeba zapperem ukatywnić w DNA i moce magiczne. 
