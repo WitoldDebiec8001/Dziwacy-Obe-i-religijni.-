@@ -6,3 +6,4 @@ Voisy awatary 2045 też mają te moce ale one takie zostały zaprojektowane i mo
 Aby coś dostać takie jak ze sklepu nie od foljarza religijnego. 
 Sklepy można wyposażyć w radio drukarki kwantowe Qwantum printer. Aby każdy dużo miał ubrań, kocy itp wszystkiego dużo ze sklepu. 
 Moc telekinezy też trzeba zapperem ukatywnić w DNA i moce magiczne. 
+A nie palić i dumać czy modlić się czy medytować zapper jest do tych spraw.  
