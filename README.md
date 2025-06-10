@@ -31,3 +31,4 @@ Ta kobieta ten łysy u Atora mówiła o małych post zakupach że zmarli nigdy n
 Te sklepy mają władce ze śiedmiogrodu zamku Malachiego Nesferatum. 
 Warszawa to Bibladen. 
 To cygany właścicele sklepów mogą kupować duże zakpy. 
+Przekarzcie rodzącym kobietom że nie chce ciup olimpik haus i macie brać star shipa i się wyprowadzić na Marsa. Komunie mówię nie i żeganam jak tym pogrzebom bo ktoś chciał większe zakupy to roboty zatrudnijcie i drukarki kwantowe. Sportowi i olimpik haus i mościckiemu mówię nie jak Oli Wychowałek. 
