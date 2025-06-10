@@ -16,3 +16,4 @@ Ci minimalistyczni narkomani to mówią zawsze tak jak im coś w nas się niepod
 Ci aktorzy starszą niebem i mówią jak mamy żyć i karzą żyć w ciasnocie i mieć dużą rodzine minimalistów religijnych. Oni to też królestwo boże. 
 Przez ich rządy i lekarzy psychiatrów i Zus jest jak za stalkera czy gomułkę czy gierka.  
 Na te awantury tylko druarki kwantowe i prcoesory kwantowe radio procesor kwantowy radio drukarka kwantowa to lek na biede. 
+Tylko Cardcomputer może uwolnić nas od biedy Vois. 
