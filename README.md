@@ -28,3 +28,4 @@ Te maszyny to Tuszyn i Jurek Magdziński i Spece X cygany i żydy kobiety w cebu
 To post mafia reguluje rynek i nazwała sklepy okzajonalnymi i karze kupować małe post zakupy. To nichiliści żydowscy i indiańscy wam pochowali rodzinę i spalili ciało ich i zdjęcia oni ci ludzie co umarli nie szanowali małych post zakupów ze sklepu okazjonalnego. Dlatego umrarli i nigdy nie wrucą nawet w niebie. 
 Właścicielami cmentarzy są sklepy okazjonalne. 
 Ta kobieta ten łysy u Atora mówiła o małych post zakupach że zmarli nigdy nie wrócą nawet po śmierci w zaświatach.  
+Te sklepy mają władce ze śiedmiogrodu zamku Malachiego Nesferatum. 
