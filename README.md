@@ -10,3 +10,4 @@ A nie palić i dumać czy modlić się czy medytować zapper jest do tych spraw.
 To religijni minimaliści karzą nic nie mieć a kobietą karzą mieć poncho 1 koc nawet śpiewali piosneki minimalist ponchonelo w 2005 roku. Voisy też zazali jak ci od rakiet i podruży rakietami. To PGE minimaliści zabraniają mieć pieniedze i dużo ilość rzeczy i te rzeczy jak się umrze idą do kosza. Minimaliści to roboty jak Kristiana Loken TX. To religijni z chengami karzą biedą i minimalizmem karzą mieć tyle ile mieści się w domu w szafie bez voisów kwantowych interneteu rzeczy. 
 Skepy upadły przez tych foljarzy oni mają udziały PGE PGE reklamuje się jako firma minimalistów religijnych gołębi biedaków tylko damy energię na latareczkę.  
 Nazywajcie ich wódka na stole tych minimalistów faje nie wódka. 
+To minimaliści karzą mało posiadać pieniedzy i toreb religijni. 
