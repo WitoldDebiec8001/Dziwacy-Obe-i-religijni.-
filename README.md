@@ -18,3 +18,4 @@ Przez ich rządy i lekarzy psychiatrów i Zus jest jak za stalkera czy gomułkę
 Na te awantury tylko druarki kwantowe i prcoesory kwantowe radio procesor kwantowy radio drukarka kwantowa to lek na biede. 
 Tylko Cardcomputer może uwolnić nas od biedy Vois. 
 Biede globalną wymyślili żydzi i cyganie i green spece leśnicy. 
+Znam historie pewnej kobiety co była w niebie i tam żyła to pozwolili jej mieć w Los Angeles tylko 3 koce mogła mieć i 1 koc na nogi i sweter i płaszcz i polar i futro wiećej nie mogła mieć po tem przenieśli ją do nieba do jakieś symulacji kwantowej. Nie mogła mieć elektroniki. Takie rygory jak na pokład Spece X. 
