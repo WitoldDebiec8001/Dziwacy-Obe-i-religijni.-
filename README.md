@@ -17,3 +17,4 @@ Ci aktorzy starszą niebem i mówią jak mamy żyć i karzą żyć w ciasnocie i
 Przez ich rządy i lekarzy psychiatrów i Zus jest jak za stalkera czy gomułkę czy gierka.  
 Na te awantury tylko druarki kwantowe i prcoesory kwantowe radio procesor kwantowy radio drukarka kwantowa to lek na biede. 
 Tylko Cardcomputer może uwolnić nas od biedy Vois. 
+Biede globalną wymyślili żydzi i cyganie i green spece leśnicy. 
