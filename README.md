@@ -24,3 +24,4 @@ Mościciki ściga auta elektryczne i wysysa z bateri tych aut energię do hotelu
 W lotto można grać jak uzna się zasadę NGO Fifti fifti i da się na małego kulawego Kaliego na kościół religijnych inowierców z królestwa bożego. Indu też nie pozwala grać w kasynach i robić max zakupy.  
 Dla Spece X normy budowali w Tuszynie i Jurek Magdziński dawał rady dla Tuszyna. 
 Majątku można ze soboą mieć tyle co Altair. Duże zakupy nie. 
+Te maszyny to Tuszyn i Jurek Magdziński i Spece X cygany i żydy kobiety w cebulke koce i koc na dupie i mała elektronika i klucze do pustego domu czy mieszkania z łórzkiem ci żebracy to Cygany i żydzi te maszyny. 
