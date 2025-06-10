@@ -13,3 +13,4 @@ Nazywajcie ich wódka na stole tych minimalistów faje nie wódka.
 To minimaliści karzą mało posiadać pieniedzy i toreb religijni. 
 Minimaliści karzą wszystko zamykać i siedzieć w domu to ci politycy zkazali zakupów. Tylko radio druakrki kwantowe do domu mogą nas uwolić od niewli minimalistów cyganów i żydów. 
 Ci minimalistyczni narkomani to mówią zawsze tak jak im coś w nas się niepodoba to mówią tak niebo i lekarze z nieba się o tym dowiedzą i damy rentę i leki angelini Latude czy tam orizon. Oni straszą niebem i lekami. 
+Ci aktorzy starszą niebem i mówią jak mamy żyć i karzą żyć w ciasnocie i mieć dużą rodzine minimalistów religijnych. Oni to też królestwo boże. 
