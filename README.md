@@ -25,3 +25,4 @@ W lotto można grać jak uzna się zasadę NGO Fifti fifti i da się na małego 
 Dla Spece X normy budowali w Tuszynie i Jurek Magdziński dawał rady dla Tuszyna. 
 Majątku można ze soboą mieć tyle co Altair. Duże zakupy nie. 
 Te maszyny to Tuszyn i Jurek Magdziński i Spece X cygany i żydy kobiety w cebulke koce i koc na dupie i mała elektronika i klucze do pustego domu czy mieszkania z łórzkiem ci żebracy to Cygany i żydzi te maszyny. 
+To post mafia reguluje rynek i nazwała sklepy okzajonalnymi i karze kupować małe post zakupy. To nichiliści żydowscy i indiańscy wam pochowali rodzinę i spalili ciało ich i zdjęcia oni ci ludzie co umarli nie szanowali małych post zakupów ze sklepu okazjonalnego. Dlatego umrarli i nigdy nie wrucą nawet w niebie. 
