@@ -29,3 +29,4 @@ To post mafia reguluje rynek i nazwała sklepy okzajonalnymi i karze kupować ma
 Właścicielami cmentarzy są sklepy okazjonalne. 
 Ta kobieta ten łysy u Atora mówiła o małych post zakupach że zmarli nigdy nie wrócą nawet po śmierci w zaświatach.  
 Te sklepy mają władce ze śiedmiogrodu zamku Malachiego Nesferatum. 
+Warszawa to Bibladen. 
