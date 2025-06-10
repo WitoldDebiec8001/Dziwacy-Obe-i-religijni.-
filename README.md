@@ -11,3 +11,4 @@ To religijni minimaliści karzą nic nie mieć a kobietą karzą mieć poncho 1 
 Skepy upadły przez tych foljarzy oni mają udziały PGE PGE reklamuje się jako firma minimalistów religijnych gołębi biedaków tylko damy energię na latareczkę.  
 Nazywajcie ich wódka na stole tych minimalistów faje nie wódka. 
 To minimaliści karzą mało posiadać pieniedzy i toreb religijni. 
+Minimaliści karzą wszystko zamykać i siedzieć w domu to ci politycy zkazali zakupów. Tylko radio druakrki kwantowe do domu mogą nas uwolić od niewli minimalistów cyganów i żydów. 
