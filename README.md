@@ -12,3 +12,4 @@ Skepy upadły przez tych foljarzy oni mają udziały PGE PGE reklamuje się jako
 Nazywajcie ich wódka na stole tych minimalistów faje nie wódka. 
 To minimaliści karzą mało posiadać pieniedzy i toreb religijni. 
 Minimaliści karzą wszystko zamykać i siedzieć w domu to ci politycy zkazali zakupów. Tylko radio druakrki kwantowe do domu mogą nas uwolić od niewli minimalistów cyganów i żydów. 
+Ci minimalistyczni narkomani to mówią zawsze tak jak im coś w nas się niepodoba to mówią tak niebo i lekarze z nieba się o tym dowiedzą i damy rentę i leki angelini Latude czy tam orizon. Oni straszą niebem i lekami. 
