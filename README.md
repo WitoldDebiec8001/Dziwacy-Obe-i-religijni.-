@@ -33,3 +33,4 @@ Warszawa to Bibladen.
 To cygany właścicele sklepów mogą kupować duże zakpy. 
 Przekarzcie rodzącym kobietom że nie chce ciup olimpik haus i macie brać star shipa i się wyprowadzić na Marsa. Komunie mówię nie i żeganam jak tym pogrzebom bo ktoś chciał większe zakupy to roboty zatrudnijcie i drukarki kwantowe. Sportowi i olimpik haus i mościckiemu mówię nie jak Oli Wychowałek. 
 Sklepy okazjonalne to tylko wyporzyczalnie. Co do ubrań to są nasze jak są w granicach małych post zakupów to co opisałem na przykładzie 1 dziewczyny.
+Te szmaty od wyporzyczalni to totemy indianie i żydzi i lotkowski. Przez co przez sport. 
