@@ -38,3 +38,4 @@ Co do post małych zakupów to totemy indianie wymyślili z żydami i cyganami w
 Żony z populacji też są wyporzyczone w zaświatach znów się ludzie rostają. 
 Na nich mówi się donald bo są analfabetami z matematyki nie wiedzą ile jest pieniedzy w obiegu i banknotów kto ile dostaje co miesiąc a ceny są mocno wygruówane dlatego mówia się na nich
 Kaczor Dnoald żart. Towaru mają tyle ile mysz napłakała.  
+Jak ktoś pyta o ten zegarek z Gwen to był żart kaczor donald kali linux zainfekowałe Gwen i ją wchłonoł sąd żydami samsung się zajmie za zniewagę osoby tajnej i zrobienia jej popylarności i gwiazdy w sądzie będzie miał samsung i żydzi i cyganie i indianie ale buz. 
