@@ -36,3 +36,5 @@ Sklepy okazjonalne to tylko wyporzyczalnie. Co do ubrań to są nasze jak są w 
 Te szmaty od wyporzyczalni to totemy indianie i żydzi i lotkowski. Przez co przez sport. 
 Co do post małych zakupów to totemy indianie wymyślili z żydami i cyganami wyporzyczalnie towaru tak jest w przyszłości. Jak ktoś chce mieć swoje uczli go transdentencji i telkinezy i pisania druakrek kwantowych do kradzieży na własność. Te sklepy to komuch.
 Żony z populacji też są wyporzyczone w zaświatach znów się ludzie rostają. 
+Na nich mówi się donald bo są analfabetami z matematyki nie wiedzą ile jest pieniedzy w obiegu i banknotów kto ile dostaje co miesiąc a ceny są mocno wygruówane dlatego mówia się na nich
+Kaczor Dnoald żart. Towaru mają tyle ile mysz napłakała.  
