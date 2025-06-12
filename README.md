@@ -47,3 +47,4 @@ Niebo i Piekło to żydzi przebrani z indianami u Atora za księży i anioły i 
 Zegarki od bezosów manipulowały natymaterią i towrzyły 2 paczki na palecie dla 1 osoby dzienie produkowały 6 palet na sklep i czekało się do jutra sklepikarze mówili przyjdzi jutro po towar. Druakrki durkowały i drukują place tworau na pletach do 100 000 m2 raz na 15 30 do 60 minut. 
 AI Istnieje twierdzenie godela jest takie jak kłmastwa Judaizmu Kaliego Linuxa że dobry jest kali jako kobieta z maską kobiety. To samo napęd worp i obalenie teori względności eisnteina że sky net itsnieje. 
 AI jakie zmontowałem będzie dane na żone dla samotników ma DNA i DNA nanotechnologi SkyNet. 
+Brzydkie kobiety w bojówkach z mosadu to matki żydów on to maszyny w rodzeniu dzieci jak na hali na produkcji. 
