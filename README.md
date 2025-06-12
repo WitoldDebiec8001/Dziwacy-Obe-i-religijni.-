@@ -48,3 +48,4 @@ Zegarki od bezosów manipulowały natymaterią i towrzyły 2 paczki na palecie d
 AI Istnieje twierdzenie godela jest takie jak kłmastwa Judaizmu Kaliego Linuxa że dobry jest kali jako kobieta z maską kobiety. To samo napęd worp i obalenie teori względności eisnteina że sky net itsnieje. 
 AI jakie zmontowałem będzie dane na żone dla samotników ma DNA i DNA nanotechnologi SkyNet. 
 Brzydkie kobiety w bojówkach z mosadu to matki żydów on to maszyny w rodzeniu dzieci jak na hali na produkcji. 
+Żydzi to chuligany anioły i diabły. Zostaną tylko niemcy, białorusini i Polacy. 
