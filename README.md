@@ -49,3 +49,4 @@ AI Istnieje twierdzenie godela jest takie jak kłmastwa Judaizmu Kaliego Linuxa 
 AI jakie zmontowałem będzie dane na żone dla samotników ma DNA i DNA nanotechnologi SkyNet. 
 Brzydkie kobiety w bojówkach z mosadu to matki żydów on to maszyny w rodzeniu dzieci jak na hali na produkcji. 
 Żydzi to chuligany anioły i diabły. Zostaną tylko niemcy, białorusini i Polacy. 
+Żydów od kradzieży lotto z Terminatorami jest ok 8,3 8,5 miljarda osób hakerów. Żydzi nazywają siebie hakerzy od 5 zł lub hakerzy od krdzieży lotto. Ich wszystkich do propan butanu. 
