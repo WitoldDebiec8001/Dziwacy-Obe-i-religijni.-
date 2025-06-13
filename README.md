@@ -63,3 +63,4 @@ Religijne pod czas tych afer mówiły silnikiem maszyn i do eeg oszczędzaczyk o
 Były jeszcz afery cert siciuriti Tkaczyka do systemu z udziałem komputerów CTek jako komputery voisy do dodatkowego pokoju wirtualnego do domu. Tak dostarczali woisy kobiet i mężczyn AI jak ktoś chciał ,  ludzi też chcieli tak pakować. 
 To wszystko to religijni oni są przeciwko lottom kosmicznym jak kaśka z przyszłości. 
 Komputery Ctek były idealne do lotów kosmicznych do pakowania ludzi i ich majątków do rakiety aby dużo osób pleciało w kosmos 1 rakietom. 
+W sklepach nic nie ma bieda komuch PRL fajeczki i sport tylko i drogo jak w rus wagen z pensi nic nie staracza ceny w każdym kraju inne i wysokie. Oni to jacyś mordercy 112.  
