@@ -70,3 +70,4 @@ Do tego warto dodać że nie opłaca się  dziś żenić. Wyprowadzić w kosmos 
 Nie stety nie można się wyprowadzić w kosmos sameu poniewarz ludzie to patrioci tubylczy. Karzą się żenić. Pracować jak w PRL. Nie można się wyprowadzić w kosmos przez firmy i wawelskiego i kaliego ich przekrenty to wyprwadzka za miasto do wsi gdzie rządzi WSI i ABW. To są złodzieje. Voisów z rakietami nie można kupić i się wyprowadzić przez księdza. Lotto nie ma przez hakerów i jest bieda. I grozi nam jakaś kobieta co chce ślubu i rozwodu. I marnowania nam życia. Szlak mnie trafia jak nie słysze czy są voisy z UFO. Nie stety grozi nam koljena era niewoli. Przez księdza debila. 
 Dla informacji i świetnego spokoju te firmy jak Ros kosmos, Polsa, Esa, Spece x, Nasa to przekrenty wawelskiego i Kleiego bo karzą tym prezsom dla TV budować te rakiety. 
 Wyboracz karze budować te konstrukcje i marnować stal. 
+To co pokazała wyborcza to kolejne jaja z drewna kaczor donald. 
