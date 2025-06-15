@@ -75,3 +75,4 @@ Pracować wszystkim karzą złodzieje w togach i w szacie księdzia proboszcza. 
 Wośp i Pogotowie to też ludzie przeczkole. Oni karzą na 30 lat być razem i odesłać parę do gediatri bo wośp zbudowało szpitale gediatri. Tak robią w Reinbow i itaka dlatego za afery złotej karty color ci ludzie będą śmierdzieć silosem na śmieci. Bo gazetka nie ma co pisać do prasy. 
 Jak te afery się nie skończą z religijnymi na czele w imie drogi krzyżowej z ul. żydowskiej to 112 w przyszłości nawet tych od biomodów też nie będzie jak i sportu. 
 Dziękuje z uwagę. 
+To są awantury o las. 
